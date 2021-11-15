@@ -1,1 +1,1 @@
-# Old-Privete-Project
+# Old-Private-Project
